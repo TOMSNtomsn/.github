@@ -5,9 +5,9 @@
 TOMSN は，大学・個人制作を起点に生まれたクリエイティブユニットです．  
 ジャンルや専門を超えて，「表現したい衝動」を形にすることを大切にしています．
 
- [Instagramはこちら](https://www.instagram.com/tomsn_works/)
+ [Instagram はこちら](https://www.instagram.com/tomsn_works/)
 
- [Xはこちら](https://x.com/tomsn_works)
+ [X はこちら](https://x.com/tomsn_works)
 
 
 ---
